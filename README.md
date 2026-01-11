@@ -1,2 +1,2 @@
-# zanox
+# zanix
 yeah well.. idk?
